@@ -1,5 +1,34 @@
 # Your Eyes - Barney Sky, Taqiya Jaman
 
+[Intro: Taqiya Zaman]
+I don't believe in soulmates, but
+Teri nazaron ne dil ka kiya jo
+Hashar, asar ye hua
+Ab inamen hee doob ke ho jaanoon
+Paar, yahi hai dua
+Teri nazaron ne dil....
+
+[Verse 1: Barney Sku]
+Yeah, your eyes got my heart falling for you
+You're messing with my heart and I still wanna love you
+I wanna spend my life drowning in your eyes
+It's my only prayer
+Your eyes got my heart falling for you
+You're messing with my heart and I still wanna love you
+I wanna spend my life drowning in your eyes
+It's my only prayer, yeah
+
+[Verse 2: Taqiya Zaman]
+Kaise battaen kyun tujko chaahein
+Yaaraa, bataa naa paaen
+Baathen dilon kee dekho Jo baaqee
+Aankhen tuje samajhaayen
+Too jaane....
+
+;--------------------------------------------
+;--------------------------------------------
+
+
 I don't believe in soulmates, but
 तेरी नज़रों ने दिल का किया जो हशर, असर ये हुआ
 अब इनमें ही डूब के हो जाऊँ पार, यही है दुआ
