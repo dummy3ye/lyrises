@@ -1,4 +1,4 @@
-# Your Eyes - Barney Sky, Taqiya Jaman
+# Your Eyes - Barney Sku, Taqiya Jaman
 
 [Intro: Taqiya Zaman]
 I don't believe in soulmates, but
